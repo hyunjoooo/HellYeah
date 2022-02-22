@@ -1,2 +1,2 @@
 # HellYeah
-Collaboration with Hyunjoo
+Collaborate with Hyunjoo
